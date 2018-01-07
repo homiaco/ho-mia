@@ -1,2 +1,2 @@
 
-Find us instagram.com/homiaco
+Instagram @homiaco   Facebook @homiaco
